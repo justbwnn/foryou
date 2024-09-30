@@ -1,1 +1,1 @@
-for keishaa
+untukk nanat tercintaaw
